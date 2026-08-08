@@ -6,7 +6,7 @@
 ### <div align="center">Top 1 Goonbal Gooner</div>  
   
 
-- ☢️ I'm currently working on developing artillery!  
+- ☢️ I'm currently working on developing nuclear artillery!  
   
 
 ![](https://media1.tenor.com/m/MXHMsuFmnI4AAAAC/sky-falling.gif)  
